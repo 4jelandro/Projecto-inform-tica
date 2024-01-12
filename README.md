@@ -1,1 +1,1 @@
-# Projecto-inform-tica
+# Projecto-informtica
